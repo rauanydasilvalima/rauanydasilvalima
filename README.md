@@ -1,16 +1,25 @@
-## Hi there 👋
+## Hi there 👋seja bem vindo🩰
 
-<!--
-**rauanydasilvalima/rauanydasilvalima** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome e rauany
 
-Here are some ideas to get you started:
+- estou esdudando alura
+- gosto de joga  
+- adoro assistir
+_### voce entrar em contado comigo 📧
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+![image](https://github.com/user-attachments/assets/2198aab4-6961-43bc-b7b4-47d1e95ed79e)
+
+
+
+
+
+
+
+
+
+
+
+  
